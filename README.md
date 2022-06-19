@@ -1,1 +1,1 @@
-# galactic-language-of-the-solar-system
+# Galactic language of the solar system
